@@ -1,4 +1,4 @@
-## Hi there 👋
+# Eleanor Fredine Project Portfolio
 what is up gang gang
 please work
 
